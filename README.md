@@ -18,3 +18,8 @@
 
   * 𝒴𝑜𝓊 𝒜𝓁𝓇𝑒𝒶𝒹𝓎 𝒦𝓃𝑜𝓌, 𝐻𝑒𝒽𝑒~ 𝐵𝓊𝓉 𝐼𝒻 𝒴𝑜𝓊 𝒲𝒶𝓃𝓉 𝑀𝓎 𝒟𝓇𝒾𝓋𝑒 𝐿𝒾𝓃𝓀... 𝐻𝑒𝓇𝑒 𝒾𝓈 𝓉𝒽𝑒 𝓁𝒾𝓃𝓀:
     https://drive.google.com/drive/folders/10Xe1heDK6CH46hrDYZC4YD40IhS3tM6M?usp=sharing
+
+## 𝒮𝓊𝒷𝓂𝑜𝒹 𝒮𝓊𝑔𝑔𝑒𝓈𝓉𝒾𝑜𝓃𝓈
+
+  * 𝐼𝒻 𝓎𝑜𝓊 𝒽𝒶𝓋𝑒 𝒶𝓃𝓎 𝒮𝓊𝒷𝓂𝑜𝒹 𝒮𝓊𝑔𝑔𝑒𝓈𝓉𝒾𝑜𝓃𝓈 𝓎𝑜𝓊'𝒹 𝓁𝒾𝓀𝑒 𝓂𝑒 𝓉𝑜 𝒹𝑜, 𝒽𝑒𝓇𝑒'𝓈 𝓂𝓎 𝑔𝒻𝑜𝓇𝓂 𝓁𝒾𝓃𝓀:
+    https://docs.google.com/forms/d/1pDF1BcpuSAN6DY0y8Ak_Yq598LXr_l9wuNVeP9cbNuY/edit?usp=drive_web
